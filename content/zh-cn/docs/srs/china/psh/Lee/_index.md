@@ -10,6 +10,12 @@ weight: 100
 
 擅长女性会阴部的整形与修复重建，以及男转女性别重塑手术。
 
+**预约渠道：**
+
+- 线上坐诊：[好大夫在线-李峰永](https://www.haodf.com/doctor/1205560473.html)
+
+- 面诊预约：#小程序://八大处整形医院官方咨询平台/9zGmQ38yemBkU9y
+
 **社交媒体：**
 
 - **小红书：**[八大处李峰永](https://www.xiaohongshu.com/user/profile/60efab7b0000000001001a2c)
